@@ -1,6 +1,3 @@
+Stucked in loop
 
-some facts-:
-
-Chlo bakchodi krte h
-
-kapil chutiya h >>>>>gaandu h
+we are trying to get out of it.
